@@ -2,7 +2,7 @@
 
 😄 Je suis un jeune développeur spécialisé dans le web et ouvert à tous types d'opportunités
 
-⚡ J'adore tester et découvrir de découvrir de nouvelles technologies
+⚡ J'adore tester et découvrir de nouvelles technologies
 
 📫 N'hésitez pas à me contacter pour en savoir davantage !
 
